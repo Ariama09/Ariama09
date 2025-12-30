@@ -1,16 +1,18 @@
-## Hi there 👋
+## 𝐖𝐄𝐋𝐊𝐎𝐌𝐄
 
-<!--
-**Ariama09/Ariama09** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+![ivanluka (1)](https://github.com/user-attachments/assets/cff02c70-f739-4ba3-aa6b-8f37ef0355dc)
+
+_______________________________________________________________________________________________________________
+я очᴇнь ᴨᴩидиᴩчиʙый ᴋ ʙᴀɯиʍ ᴧюбиʍыʍ ᴨᴇйᴩинᴦᴀʍ/ᴨᴇᴩᴄонᴀжᴀʍ ʍоё ʍнᴇниᴇ о ʙᴀᴄ ʍожᴇᴛ быᴛь хужᴇ.  (ᴩуиᴋᴀᴄᴀ, ᴋᴀɸᴋᴀбᴧᴇйд, ᴋиᴩᴇнᴀ/ɸᴀᴇнон, ᴛᴨох, ᴄᴛᴩᴀнниᴋ, ᴋᴀдзуᴄᴋᴀᴩы) ϶ᴛо ᴄᴛᴩᴀннᴀя нᴇᴨᴩиязнь, но ϶ᴛо дᴇᴩжиᴛᴄя до ᴄих ᴨоᴩ
+
+___________________________________________________ [ʍой ᴛᴦᴋ](https://t.me/Ariama09) __________________________________________________________________________________
+![загрузка](https://github.com/user-attachments/assets/01c951b7-e7bd-4e08-8a86-17f0c9bc9b26) <img width="245" height="221" alt="amoo" src="https://github.com/user-attachments/assets/b81e8413-5824-4b0c-8b8f-cae5403bdc25" />
+
+
+                                          
+
+
+
