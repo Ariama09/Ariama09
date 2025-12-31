@@ -49,7 +49,10 @@ ________________________________________________________________________________
  ![joker-person](https://github.com/user-attachments/assets/777b5d18-f3b5-4633-b482-179dfa2d19ef)
 
 _______________________________________________________________________________________________________________
-_________________________________________________________________[ʍой инфо](https://t.me/Ariama09) _______________________________________
+
+   ![red](https://github.com/user-attachments/assets/4e50cecb-64cd-4e8b-9856-54b0d42e23a1)![red](https://github.com/user-attachments/assets/4e50cecb-64cd-4e8b-9856-54b0d42e23a1)
+
+[ʍой инфо](https://t.me/Ariama09)
 
 
 ![загрузка](https://github.com/user-attachments/assets/01c951b7-e7bd-4e08-8a86-17f0c9bc9b26) <img width="245" height="221" alt="amoo" src="https://github.com/user-attachments/assets/b81e8413-5824-4b0c-8b8f-cae5403bdc25" /> 
