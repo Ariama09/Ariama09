@@ -3,7 +3,15 @@
 
 
 
-![481ca9cee31b632f1acd35291de79363](https://github.com/user-attachments/assets/4426c7e1-199b-4cc0-93a0-ac3af78ce83c)
+
+![1cc2b122958c27f808a62bac62dc60b6](https://github.com/user-attachments/assets/d8490968-7cb0-4afa-b6cb-6ffd86aa4d84) ![mike-morton-mike-morton-idv](https://github.com/user-attachments/assets/502ddd76-d289-42b6-90f9-44565c615fd4)
+
+
+
+
+
+
+
 
 
 
@@ -17,7 +25,7 @@ ________________________________________________________________________________
 
 
 
-![біблія-україна](https://github.com/user-attachments/assets/652e5802-c43e-4163-aa7a-6a1f641f0c4e) ![111](https://github.com/user-attachments/assets/440ce707-f9ea-42b6-b530-2fa33e6f910e) ![біблія-україна](https://github.com/user-attachments/assets/652e5802-c43e-4163-aa7a-6a1f641f0c4e) 
+![біблія-україна](https://github.com/user-attachments/assets/652e5802-c43e-4163-aa7a-6a1f641f0c4e) ![111](https://github.com/user-attachments/assets/440ce707-f9ea-42b6-b530-2fa33e6f910e) ![біблія-україна](https://github.com/user-attachments/assets/652e5802-c43e-4163-aa7a-6a1f641f0c4e)  ![idv-mike-mike-morton](https://github.com/user-attachments/assets/14dd352d-6106-4dfe-a196-10b654f60e62)
 
 
 
