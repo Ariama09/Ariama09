@@ -53,9 +53,8 @@ ________________________________________________________________________________
 
 
 
-![fire-fireball](https://github.com/user-attachments/assets/dead84cb-5b16-475e-97e9-0a911506b882)  
-![red](https://github.com/user-attachments/assets/4e50cecb-64cd-4e8b-9856-54b0d42e23a1)
-![red](https://github.com/user-attachments/assets/4e50cecb-64cd-4e8b-9856-54b0d42e23a1)
+
+ ![fire-fireball](https://github.com/user-attachments/assets/dead84cb-5b16-475e-97e9-0a911506b882)   ![red](https://github.com/user-attachments/assets/4e50cecb-64cd-4e8b-9856-54b0d42e23a1)![red](https://github.com/user-attachments/assets/4e50cecb-64cd-4e8b-9856-54b0d42e23a1)
 
 ⸰ ✴︎——————✦————————✦——————————⸰[𝐈𝐍𝐅𝐎 𝐓𝐆𝐂](https://t.me/Ariama09)⸰ ✴︎———————✦——————————✦————✴︎
 
