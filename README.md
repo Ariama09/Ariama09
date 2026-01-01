@@ -4,7 +4,8 @@
 
 
 
-![1cc2b122958c27f808a62bac62dc60b6](https://github.com/user-attachments/assets/d8490968-7cb0-4afa-b6cb-6ffd86aa4d84) ![mike-morton-mike-morton-idv](https://github.com/user-attachments/assets/502ddd76-d289-42b6-90f9-44565c615fd4)
+![spider-transparent-background](https://github.com/user-attachments/assets/bafad96b-754e-47f3-843d-b46096f00a06)
+ ![1cc2b122958c27f808a62bac62dc60b6](https://github.com/user-attachments/assets/d8490968-7cb0-4afa-b6cb-6ffd86aa4d84)
 
 
 
