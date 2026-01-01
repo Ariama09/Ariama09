@@ -4,8 +4,7 @@
 
 
 
-![spider-transparent-background](https://github.com/user-attachments/assets/bafad96b-754e-47f3-843d-b46096f00a06)
- ![1cc2b122958c27f808a62bac62dc60b6](https://github.com/user-attachments/assets/d8490968-7cb0-4afa-b6cb-6ffd86aa4d84)
+<img width="194" height="167" alt="image" src="https://github.com/user-attachments/assets/67db8e46-fdc7-4486-8d72-35324c269289" />![1cc2b122958c27f808a62bac62dc60b6](https://github.com/user-attachments/assets/d8490968-7cb0-4afa-b6cb-6ffd86aa4d84)
 
 
 
