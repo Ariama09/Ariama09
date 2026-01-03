@@ -5,8 +5,7 @@
 
 
 <img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" />![1cc2b122958c27f808a62bac62dc60b6](https://github.com/user-attachments/assets/d8490968-7cb0-4afa-b6cb-6ffd86aa4d84)
-
-<img width="340" height="122" alt="image" src="https://github.com/user-attachments/assets/c38084a8-3732-4794-a7bc-dfed2640c8ed" />![](https://komarev.com/ghpvc/?username=Ariama09&style=for-the-badge&color=ff69b4&label=(＞。☆))
+<img width="379" height="122" alt="image" src="https://github.com/user-attachments/assets/6e08f53d-5272-46ca-a0a3-abff0ca28968" />![](https://komarev.com/ghpvc/?username=Ariama09&style=for-the-badge&color=ff69b4&label=(＞。☆))
 
 
 
