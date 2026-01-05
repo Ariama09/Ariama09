@@ -4,6 +4,7 @@
 
 
 <img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" /><img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" /><img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" />![](https://komarev.com/ghpvc/?username=Ariama09&style=for-the-badge&color=ff69b4&label=(＞。☆))
+
 ⸰ ✴︎———⸰————✦————⸰————✦————⸰————✦————⸰————⸰—✴︎ ⸰ ⸰ ✴︎———⸰———✦———⸰——✦———⸰—✴︎ ⸰
 
 
