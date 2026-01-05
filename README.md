@@ -26,7 +26,8 @@ maim 𝐅𝐃 - 𝐈𝐝𝐞𝐧𝐭𝐢𝐭𝐲𝐕 :: 𝐏𝐞𝐫𝐬𝐨𝐧
 
 
 _______________________________________________________________________________________________________________
-<img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" /><img width="342" height="22" alt="image" src="https://github.com/user-attachments/assets/e81c9067-a970-41d0-811f-8b4ca8203e33" /><img width="342" height="22" alt="image" src="https://github.com/user-attachments/assets/c045bf51-185d-4832-ac10-553a7a60cfa2" />
+<img width="195" height="58" alt="image" src="https://github.com/user-attachments/assets/d21e2056-8fe4-4cba-aeb9-3652deb4b7af" />![red](https://github.com/user-attachments/assets/bab90023-5e58-45d9-a838-e6ab7020a958)![red](https://github.com/user-attachments/assets/93c54d61-06eb-463d-b594-6e962d6ef397)
+
 
 
 
