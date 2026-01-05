@@ -34,8 +34,7 @@ ________________________________________________________________________________
    
  
 ⸰ ✴︎——————✦————————✦——————————⸰[𝐈𝐍𝐅𝐎 𝐓𝐆𝐂](https://t.me/Ariama09)⸰ ✴︎———————✦——————————✦————✴︎
-<img width="214" height="103" alt="image" src="https://github.com/user-attachments/assets/a8d6b54f-cfe5-4383-bd03-c4909d0d6b1a" />![i-love-my-gf-ilysm](https://github.com/user-attachments/assets/bf668c5a-89b3-4c64-b8c8-3bb4d601028f)
- ![seal-petting-vumie-seal](https://github.com/user-attachments/assets/4a501c19-7843-4374-8811-1e416ace7200)
+<img width="214" height="103" alt="image" src="https://github.com/user-attachments/assets/a8d6b54f-cfe5-4383-bd03-c4909d0d6b1a" />![i-love-my-gf-ilysm](https://github.com/user-attachments/assets/bf668c5a-89b3-4c64-b8c8-3bb4d601028f)![seal-petting-vumie-seal](https://github.com/user-attachments/assets/4a501c19-7843-4374-8811-1e416ace7200)
 
 
 
