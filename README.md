@@ -1,9 +1,10 @@
 ## 𝐖𝐄𝐋𝐊𝐎𝐌𝐄
 ⸰ ✴︎———⸰————✦————⸰————✦————⸰————✦————⸰————⸰—✴︎ ⸰ ⸰ ✴︎———⸰———✦———⸰——✦———⸰—✴︎ ⸰
-<img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" /><img width="800" height="631" alt="image" src="https://github.com/user-attachments/assets/be50f860-3215-4c30-86d1-13261b82755a" />
+<img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" /><img width="800" height="498" alt="image" src="https://github.com/user-attachments/assets/7fd6c19d-3a30-4c2c-a2d9-db48bb659277" />
 
 
-<img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" /><img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" /><img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" /><img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" />![](https://komarev.com/ghpvc/?username=Ariama09&style=for-the-badge&color=ff69b4&label=ЙОУПРИВЕТА)
+
+<img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" /><img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" /><img width="105" height="103" alt="image" src="https://github.com/user-attachments/assets/280a6f4a-ccd6-4049-b69c-7bd31351a94e" />![](https://komarev.com/ghpvc/?username=Ariama09&style=for-the-badge&color=ff69b4&label=ЙОУПРИВЕТА)
 
 ⸰ ✴︎———⸰————✦————⸰————✦————⸰————✦————⸰————⸰—✴︎ ⸰ ⸰ ✴︎———⸰———✦———⸰——✦———⸰—✴︎ ⸰
 
