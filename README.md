@@ -2,7 +2,8 @@
 
 ![Image](https://github.com/user-attachments/assets/81b81e86-a9d5-45e0-97bf-919a0637e4b1)
 <img width="800" height="498" alt="image" src="https://github.com/user-attachments/assets/1c633366-4d25-44b6-878d-8fb88fc8d9b5" />
-<img width="400" height="26" alt="image" src="https://github.com/user-attachments/assets/5ec8e95a-2972-4ae7-b214-b6335d5b3e67" />
+![tumblr_2b218a8e8b9414b64a92d41f4f7ea428_4fa87c15_400](https://github.com/user-attachments/assets/11bce729-b162-4d27-bc5d-20171dbf1700)
+
 
 
 
