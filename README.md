@@ -1,12 +1,10 @@
 <div align="center">
 
-![Image](https://github.com/user-attachments/assets/81b81e86-a9d5-45e0-97bf-919a0637e4b1)
+![tumblr_2b218a8e8b9414b64a92d41f4f7ea428_4fa87c15_400](https://github.com/user-attachments/assets/11bce729-b162-4d27-bc5d-20171dbf1700)
 ![anaxa and rakko __ hsr](https://github.com/user-attachments/assets/59bff4b0-a45d-408d-a0c0-0834c64f9d90)
 
 
-![tumblr_2b218a8e8b9414b64a92d41f4f7ea428_4fa87c15_400](https://github.com/user-attachments/assets/11bce729-b162-4d27-bc5d-20171dbf1700)
-
-゛<code style="color : lightskyblue">ᴄʙязь ᴄо ʍной 𝐓𝐆 :: 𝐆𝐚𝐭𝐕𝐚𝐫𝟎𝟎</code> 〃
+゛<code style="color : lightskyblue">ᴄʙязь ᴄо ʍной 𝐓𝐆 :: mkkkiffi</code> 〃
 
 <img src="https://komarev.com/ghpvc/?username=Ariama09&style=for-the-badge&label=✧✦&color=e2d195"> 
 
@@ -18,7 +16,7 @@
 </p>ᴀнᴛиᴄы ‘ ᴄᴛᴀᴩыᴇ дᴩузья ‘ ɸᴀнᴀᴛы ᴄᴛᴩᴀнниᴋᴀ, ’ ɸᴀны ᴛᴨох 
 - (дᴀжᴇ нᴇ ᴨыᴛᴀйᴛᴇᴄь ᴋонᴛᴀчиᴛь ᴄо ʍной) ’ ᴦоʍоɸобы ’ ᴨᴇдоɸᴧ ’ чᴇᴩᴇз чуᴩ оᴄᴋоᴩбᴧᴇниᴇ ʙ ɯуᴛᴋу ’ зооɸ ’ жиʙодёᴩы ’ ᴛ-ɸобы ’ нᴀʍᴇᴩᴇнный ᴛᴩиᴦᴦᴇᴩ. ゛<code style="color : lightskyblue"> я очᴇнь ᴨᴩидиᴩчиʙый ᴋ ʙᴀɯиʍ ᴧюбиʍыʍ ᴨᴇйᴩинᴦᴀʍ/ᴨᴇᴩᴄонᴀжᴀ/фд ʍоё ʍнᴇниᴇ о ʙᴀᴄ ʍожᴇᴛ быᴛь хужᴇ. оᴄобᴇнно ᴇᴄᴧи: ᴩуиᴋᴀᴄᴀ, ᴋᴀɸᴋᴀбᴧᴇйд, ᴋиᴩᴇнᴀ/ɸᴀᴇнон, ᴄᴛᴩᴀнниᴋ, ᴋᴀдзуᴄᴋᴀᴩы, чиᴧюʍин, ᴩобинхиᴧᴧы, ᴛᴨох, яᴩый ɸᴀнᴀᴛ оᴛᴇᴧя хᴀзбинᴀ, яᴩый ɸᴀнᴀᴛ бᴄд, яᴩый ɸᴀнᴀᴛ ᴀᴧиᴇн ᴄᴛᴇйдж, ноᴩᴛᴧиᴄы, ᴧиᴛᴩоʍᴀнᴛиᴋи, ноᴩᴛɸᴇи, чᴇᴩиᴋᴩᴀɯ, ᴄяоʙᴇн.</code> 
 
----
+##
 
 
 $\color{rgb(29,36,46)}{\textsf{𝐅}}\color{rgb(31,34,46)}{\textsf{𝐀}}\color{rgb(43,33,43)}{\textsf{𝐍}}\color{rgb(85,28,36)}{\textsf{𝐃}}\color{rgb(107,33,40)}{\textsf{𝐎}}\color{rgb(97,44,50)}{\textsf{𝐌}}\color{rgb(84,61,66)}{\textsf{𝐒}}{\textsf{.}}$
@@ -31,8 +29,7 @@ $\color{rgb(29,36,46)}{\textsf{𝐅}}\color{rgb(31,34,46)}{\textsf{𝐀}}\color{
 
 <code style="color : lightskyblue">ᴄʍоᴛᴩᴇᴧ/ɯᴀᴩю:𝐠𝐞𝐧𝐬𝐡𝐢𝐧 𝐢𝐦𝐩𝐚𝐜𝐭 :: 𝟖:𝟏𝟏 𝐠𝐚𝐦𝐞 :: 𝐏𝐫𝐨𝐣𝐞𝐬𝐭 𝐬𝐞𝐤𝐚𝐢 :: 𝐒𝐥𝐨𝐰 𝐝𝐚𝐦𝐚𝐠𝐞 :: 𝐁𝐥𝐞𝐚𝐜𝐡 :: 𝐓𝐡𝐞 𝐥𝐚𝐬𝐭 𝐨𝐟 𝐮𝐬/𝟐 :: :: 𝐁𝐫𝐚𝐰𝐥 𝐬𝐭𝐚𝐫𝐬 :: 𝐑𝐨𝐛𝐥𝐨𝐱'' 𝐅𝐨𝐫𝐬𝐚𝐤𝐞𝐧,𝐒𝐄𝐖𝐇 :: 𝐌𝐚𝐡𝐨𝐮 𝐒𝐡𝐨𝐮𝐣𝐨 𝐌𝐚𝐝𝐨𝐤𝐚 𝐌𝐚𝐠𝐢𝐜𝐚 :: 𝐓𝐨𝐤𝐲𝐨 𝐆𝐡𝐨𝐮𝐥 :: 𝐨𝐤𝐞𝐠𝐨𝐦 :: 𝐜𝐡𝐢𝐢𝐤𝐚𝐰𝐚 :: 𝐌𝐚𝐧𝐡𝐰𝐚 "cloud" :: 𝐫𝐨𝐨𝐦 𝐰𝐢𝐭𝐡𝐨𝐮𝐭 𝐰𝐢𝐧𝐝𝐨𝐰𝐬 :: 𝟏𝟗 𝐝𝐚𝐲𝐬 𝐨𝐧𝐜𝐞 :: 𝐓𝐡𝐞 𝐅𝐚𝐤𝐞 𝐌𝐨𝐨𝐧 :: 𝐂𝐨𝐝𝐞 𝐆𝐞𝐚𝐬𝐬 :: 𝐆𝐮𝐫𝐫𝐞𝐧 𝐋𝐚𝐠𝐚𝐧𝐧 :: 𝐌𝐚𝐧𝐝𝐞𝐥𝐚'𝐬 𝐂𝐚𝐭𝐚𝐥𝐨𝐠 :: 𝐚𝐥𝐢𝐞𝐧 𝐬𝐭𝐚𝐠𝐞 :: 𝐡𝐨𝐦𝐢𝐜𝐢𝐩𝐡𝐞𝐫 :: 𝐛𝐞 𝐭𝐡𝐞 𝐡𝐞𝐫𝐨 𝐨𝐟 𝐗 :: диванный аналитик :: 𝐓𝐡𝐞 𝐬𝐪𝐮𝐢𝐝 𝐠𝐚𝐦𝐞 :: 𝐇𝐚𝐳𝐛𝐢𝐧 𝐇𝐨𝐭𝐞𝐥 :: 𝐇𝐞𝐚𝐯𝐞𝐧 𝐎𝐟𝐟𝐢𝐜𝐢𝐚𝐥'𝐬 𝐁𝐥𝐞𝐬𝐬𝐢𝐧𝐠 :: 𝐇𝐞𝐥𝐥𝐬𝐢𝐧𝐠 :: 𝐙𝐄𝐍𝐎 :: 𝐉𝐨𝐉𝐨'𝐬 𝐁𝐢𝐳𝐚𝐫𝐫𝐞 𝐀𝐝𝐯𝐞𝐧𝐭𝐮𝐫𝐞 (𝐒𝐭𝐞𝐞𝐥 𝐁𝐚𝐥𝐥 𝐑𝐮𝐧 𝐥𝐨𝐯𝐞𝐫) :: 𝐃𝐚𝐧𝐠𝐚𝐧𝐫𝐨𝐧𝐩𝐚 :: 𝐀𝐫𝐤𝐧𝐢𝐠𝐡𝐭𝐬: 𝐄𝐧𝐝𝐟𝐢𝐞𝐥𝐝</code>
 
-![tumblr_e8ae7c9d327434214005f2759e10d8c5_d8380bad_400](https://github.com/user-attachments/assets/1da20b6c-7404-4311-acb9-f383107ccbe4)
-
+![tumblr_2b218a8e8b9414b64a92d41f4f7ea428_4fa87c15_400](https://github.com/user-attachments/assets/11bce729-b162-4d27-bc5d-20171dbf1700)
 
 
 ![tumblr_a7edc9edd1b1adeecf87d3ee0cfca3ff_636e39e1_250](https://github.com/user-attachments/assets/a68a5e07-b7d9-46a7-b0b8-f6ae7cf210e7)
@@ -73,32 +70,4 @@ $\color{rgb(29,36,46)}{\textsf{𝐅}}\color{rgb(31,34,46)}{\textsf{𝐀}}\color{
 
 
 
-<img width="242" height="242" alt="image" src="https://github.com/user-attachments/assets/5d66cc5d-ec9d-4aa8-bd61-7377c0a43fdb" /><img width="226" height="226" alt="image" src="https://github.com/user-attachments/assets/bda288a0-1fa4-409e-b4ec-c83d7807d426" />![tumblr_b205b31fc8dc3d2118f8a36ac3a58e2d_1de20785_100](https://github.com/user-attachments/assets/e278a86b-34c0-48a2-b9b6-28dded94fecf)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-![tumblr_a814645d216b1d9a33de9f6a11bb5d24_4ed329f7_400](https://github.com/user-attachments/assets/86c11ba1-6755-42d6-a49b-b217d5a5ba19)!![tumblr_587ebd494f48e82b303f62f7627e4219_7616b601_100](https://github.com/user-attachments/assets/ffd19555-cc89-4758-a9e2-be2867274775)![tumblr_af75727a9bf318e329d9fe85d04913af_16c984be_400](https://github.com/user-attachments/assets/2351a044-13e7-4eaf-b1eb-39932e6b3bb1)
-
-
-
-![Image](https://github.com/user-attachments/assets/81b81e86-a9d5-45e0-97bf-919a0637e4b1)
-
-
-
-
-
+<img width="242" height="242" alt="image" src="https://github.com/user-attachments/assets/5d66cc5d-ec9d-4aa8-bd61-7377c0a43fdb" /><img width="226" height="226" alt="image" src="https://github.com/user-attachments/assets/bda288a0-1fa4-409e-b4ec-c83d7807d426" />
