@@ -5,27 +5,16 @@
 
 <img width="540" height="200" alt="548f37a71afd9fa025e430b1f77efed0" src="https://github.com/user-attachments/assets/8203b2c6-4902-42ad-9f45-0374bb5c0fef" />
 
-゛<code style="color : lightskyblue">
+<code style="color : lightskyblue">
 
 <img src="https://komarev.com/ghpvc/?username=Ariama09&style=for-the-badge&label=✧✦&color=e2d195"> 
-
-
-
-
-
-
  
    ゛<code style="color : lightskyblue">𝐃𝐍𝐈 || 𝐎𝐓𝐇𝐄𝐑.</code> 〃
-   
-младше 16 
-</p> ᴄᴛᴀᴩыᴇ дᴩузья ‘ ɸᴀнᴀᴛы ᴄᴛᴩᴀнниᴋᴀ, ’ ɸᴀны ᴛᴨох 
- ’ ᴦоʍоɸобы ’ ᴨᴇдоɸᴧ ’ чᴇᴩᴇз чуᴩ оᴄᴋоᴩбᴧᴇниᴇ ʙ ɯуᴛᴋу ’ зооɸ ’ жиʙодёᴩы ’ ᴛ-ɸобы ’ нᴀʍᴇᴩᴇнный ᴛᴩиᴦᴦᴇᴩ. ゛<code style="color : lightskyblue"> я ᴨᴩидиᴩчиʙый ᴋ ᴧюбиʍыʍ ᴨᴇйᴩинᴦᴀʍ/ᴨᴇᴩᴄонᴀжᴀ/фд НО это не значит, что я к вам буду плохо относится, иожете любить что угодно из этого дни !НО! без упоминание и навязывания мне это, шутки и нормализация!!: ᴩуиᴋᴀᴄᴀ, ᴋᴀɸᴋᴀбᴧᴇйд, ᴋиᴩᴇнᴀ/ɸᴀᴇнон, ᴄᴛᴩᴀнниᴋ, ᴋᴀдзуᴄᴋᴀᴩы, чиᴧюʍин, ᴩобинхиᴧᴧы, ᴛᴨох, яᴩый ɸᴀнᴀᴛ оᴛᴇᴧя хᴀзбинᴀ, яᴩый ɸᴀнᴀᴛ бᴄд, яᴩый ɸᴀнᴀᴛ ᴀᴧиᴇн ᴄᴛᴇйдж, ноᴩᴛᴧиᴄы, ᴧиᴛᴩоʍᴀнᴛиᴋи, ноᴩᴛɸᴇи, чᴇᴩиᴋᴩᴀɯ, ᴄяоʙᴇн.</code> 
-
-##
+   младше 16 
 
 
 
-![tumblr_2b218a8e8b9414b64a92d41f4f7ea428_4fa87c15_400](https://github.com/user-attachments/assets/11bce729-b162-4d27-bc5d-20171dbf1700)
+
 
 <img width="540" height="300" alt="67faab808d063763362baa7c1c1b2648" src="https://github.com/user-attachments/assets/9e0f3e50-ea48-4244-9f09-dec5decd2405" />
 
@@ -35,6 +24,3 @@
 ![tumblr_3ae3b37574ed30e87680bae9ff6dab1c_07453b8f_100](https://github.com/user-attachments/assets/f622631f-6570-4f59-ba3a-64ae5c055f00)![tumblr_2a1b5ef48103bae3693a3d4dc8b28142_ec2fecdb_100](https://github.com/user-attachments/assets/0577d92a-5f6e-4335-9e2e-f1d84c25e6c3)![tumblr_76ba8b3739d9e061cdd6c1207be65617_dbd10045_100](https://github.com/user-attachments/assets/57c78eca-a9d2-4441-a4f9-217f1539f2fa)![tumblr_ab9cbbd6d4dc9613dd1b4497c49a6562_6935ae79_100](https://github.com/user-attachments/assets/4fa116e7-ee56-4ef7-82a2-a589e8c1f836)![tumblr_e3c8d591dc05215df3a2228b8945c447_4d1d6a5c_100](https://github.com/user-attachments/assets/e70059e3-8679-461b-b1d9-e257fa38126c)<img width="100" height="57" alt="tumblr_29c406706c2e60bfeb2086bc3371acba_9cdb25af_100" src="https://github.com/user-attachments/assets/c2907fe9-2218-4222-aeb0-97e83c1d9c60" />
 
 <img width="101" height="58" alt="tumblr_437b72b80f8b0ff9a89b10d3ca4f9291_d0efab9f_100" src="https://github.com/user-attachments/assets/ba1c07fa-7da4-47bb-b0c5-77bb2be2f320" /><img width="101" height="58" alt="68747470733a2f2f692e6962622e636f2f47334d30516768592f7374616d702d313737333431333733372d61306265653131343066336334613233626231386561396638343735393939362e676966" src="https://github.com/user-attachments/assets/9bdf2f13-f88c-46eb-a3b9-b29a0728478b" /><img width="101" height="58" alt="604081312-32e46a4a-bfad-4453-a1ae-0f76b04b9027" src="https://github.com/user-attachments/assets/40964e48-511d-459b-8925-7fe094712e8f" /><img width="101" height="58" alt="68747470733a2f2f692e6962622e636f2f6b677053447a34772f7374616d702d313737333431323435322d37653831666433653964616534666334613466316338643664663539626331642e676966" src="https://github.com/user-attachments/assets/df8ef1d2-6b70-4f30-bd10-70c6c66da185" /><img width="101" height="58" alt="tumblr_9a4c6970e22b6d7ed5a0e8ad98af14e3_a225f21f_100" src="https://github.com/user-attachments/assets/67b196c8-be20-4c08-adbd-4a346ba6af0b" />
-
-
-
